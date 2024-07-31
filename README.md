@@ -1,0 +1,1 @@
+# nintendobenshop.github.io
